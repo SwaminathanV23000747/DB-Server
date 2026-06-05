@@ -2,8 +2,8 @@
 
 ## Author
 
-* **Name**: SURIYA PRAKASH S
-* **Register Number**: 212223100055
+* **Name**: SWAMINATHAN.V
+* **Register Number**: 212223110057
 
 ## Objective
 
